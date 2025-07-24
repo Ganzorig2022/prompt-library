@@ -1,0 +1,2 @@
+##### Prompt
+Provide me with 10 unique digital product ideas in unsaturated niches that are both highly profitable and beginner-friendly. Avoid oversaturated markets like generic printables, basic e-books, or common SaaS tools. Instead, focus on innovative, low-competition opportunities with strong demand and easy entry barriers. For each idea, briefly explain why it's profitable and how a beginner could start.
