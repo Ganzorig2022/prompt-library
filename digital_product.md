@@ -11,4 +11,4 @@ Decision-Making Progress: Dive into their thought process when deciding whether 
 
 I sell a product that helps moms with 4 year old learn how to stop wetting the bed.
 
-Can you give me 10 different digital products and I can sell to this avatar they would be willing to
+Can you give me 10 different digital products and I can sell to this avatar they would be willing to pay $37 for.
